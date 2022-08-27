@@ -1,0 +1,1 @@
+The Titanic set sail, and Jack and Rose met and had a great time. They made it back safely and had stories to tell about their time together on the Titanic for the rest of their lives.
